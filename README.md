@@ -1,0 +1,1 @@
+# MyJounral2Go
